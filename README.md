@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @QariSahib993
+- 👀 I’m interested in Gym,Gaming,Coding and learning new stuff about the computers.
+- 🌱 I’m currently learning python.
+- 💞️ I’m looking to collaborate on my own Website.
